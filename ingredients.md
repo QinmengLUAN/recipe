@@ -3,4 +3,4 @@
 * 2 tsp salt
 * 1/2 onioins
 * 2 apples
-* 2 tbsp coriander
+* 1/2 tbsp coriander
